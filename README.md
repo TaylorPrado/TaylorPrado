@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @TaylorPrado, IT Recruiter at Instituto Nacional de Telecomunicações - Inatel, located in Santa Rita do Sapucaí (Brazil).
+- 📡 Our foundation works with challenging and strategic projects for national / international clients.
+- 👀 I’m here to present our job opportunities and strengthen ties with the Git community.
+- 💬 Our carreers page: www.inatel.br/carreiras - check it out!!!
+- 💞️ I'll collaborate with tips about interviews ans others topics - just call me...
+- 📫 How to reach me at taylor.prado@inatel.br ou linkedin.com/in/silvataylor
